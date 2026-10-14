@@ -1,3 +1,5 @@
+join the discord https://discord.gg/r7JcaPS3hM
+
 # starlight-ox_lib
 <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/54f7b4c5-ce05-4edd-99fc-e2cff0e60141" />
 
